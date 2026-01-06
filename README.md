@@ -97,3 +97,8 @@
 ![](https://img20.360buyimg.com/openfeedback/jfs/t1/379043/13/23434/27614/695d7077F8b96ca3d/00155a031c905e9a.jpg)
 
 ![](https://img20.360buyimg.com/openfeedback/jfs/t1/380132/32/22034/29812/695d7077F21cd1ff9/00155a031353fe9a.jpg)
+
+##项目获取
+```\n5000套系统成品在线演示视频，复制到流浪器： ```
+```\nhttps://www.yuque.com/yuqueyonghux32e1j/kxdc9g/ad8oz3bamkxmay0e#Cxun\n```
+![下载](https://img12.360buyimg.com/ddimg/jfs/t1/339687/11/1349/28408/68ad865fF412d7877/adaa650483a100f2.jpg)
